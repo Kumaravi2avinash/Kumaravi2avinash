@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Avinash
 - 👀 I’m interested in money
 - 🌱 I’m currently persuing EMBA from IIT Patna
-- 📫 How to reach me +91 9467769604
+- 📫 reach me +91 9467769604
 - 😄 Pronouns:Avi
 - ⚡ Fun fact: ...
 
