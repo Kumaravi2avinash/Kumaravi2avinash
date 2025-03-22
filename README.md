@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Avinash
-- 👀 I’m interested in money
+- 👀 I’m interested in learning new things related to finance, Market and codes
 - 🌱 I’m currently persuing EMBA from IIT Patna
 - 📫 reach me +91 9467769604
 - 😄 Pronouns:Avi
